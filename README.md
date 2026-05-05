@@ -60,6 +60,9 @@ https://www.canva.com/design/DAHIqrwKRk4/MUhQqD7W66cR2x7uAe9yhg/edit
 
 #### PDF do Canvas
 https://github.com/ceciliafujita/FIAP_1IAST/blob/main/TC%20-%20Fase1%20-%20Apresentac%CC%A7a%CC%83o.pdf
+
+#### Apresentação
+https://www.canva.com/design/DAHIqrwKRk4/QFeVC0wSz-C78ZTLzdqvSg/view?utm_content=DAHIqrwKRk4&utm_campaign=designshare&utm_medium=link&utm_source=recording_view
  
 
 
